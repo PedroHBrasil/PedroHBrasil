@@ -6,5 +6,4 @@
 - 🤔 I’m looking for help with my next steps as a dev. I guess a mentor would be nice.
 - 💬 Ask me about how could we work together on that cool idea that you have.
 - 📫 How to reach me: pedrohbrasil7@gmail.com
-- 😄 Pronouns: him (yes, I'm a boring cis heterosexual)
 - ⚡ Fun fact: amazing how devs can go from feeling like a god to feeling like trash (works both ways) in a matter of minutes lol
